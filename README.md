@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ..HTML-CSS and java.
 - 💞️ I’m looking to collaborate on ajudar pessoas...
 - 📫 How to reach me :Celular (21)97277-8585
-- E-mail:jpspaes@gmail.com..
+- E-mail:jpsppaes@gmail.com..
 - 😄 Pronouns: Não tenho...
 - ⚡ Fun fact: Adoro assistir Naruto..
 
